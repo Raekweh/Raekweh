@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Raekweh or you can adddress me by Rae
+- 👋 Hi, I’m @Raekweh or you can adddress me by Rae, Rei or Raymond
 - 👀 I’m interested in anime, gyming and coding which is why im here hahaha
 - 🌱 I’m currently learning c#, python (Very on and off)
 - 📫 You can reach out to me through Raekweh009@gmail.com
